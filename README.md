@@ -1,2 +1,5 @@
-# donepalli.github.io
-This is my web site
+#Saritha Donepalli
+**EDUCATION DETAILS**
+##Srivasavi Engeneering clg
+B.TecH
+**E.C.T BRANCH**
